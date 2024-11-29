@@ -15,8 +15,6 @@ Mi enfoque está en la mejora continua, la gestión del cambio y la implementaci
 
 📧 Correo Electrónico: branco.riffo.m@gmail.com
 
-📞 Teléfono: +56 9 9899 3775
-
 📍 Ubicación: Santiago de Chile
 
 Si deseas colaborar en proyectos relacionados con la gestión estratégica en salud o tienes ideas para mejorar los procesos de instituciones de salud, no dudes en contactarme. ¡Juntos podemos construir un sistema de salud más eficiente y sostenible! 🚀
