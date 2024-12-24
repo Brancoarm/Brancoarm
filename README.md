@@ -9,7 +9,7 @@ Actualmente, desempeño el cargo de Subdirector en el COSAM Pedro Aguirre Cerda,
 🌟 Objetivo Profesional
 
 Mi misión es liderar procesos de transformación en el sector salud, promoviendo una cultura organizacional basada en datos y el uso de herramientas innovadoras como el Cuadro de Mando Integral (CMI) y estrategias de gestión basadas en resultados. 
-Mi enfoque está en la mejora continua, la gestión del cambio y la implementación de tecnologías como Big Data para la toma de decisiones estratégicas.
+Mi enfoque está en la mejora continua, la gestión del cambio y la implementación de tecnologías para la toma de decisiones estratégicas.
 
 🌐 Contacto
 
